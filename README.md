@@ -1,6 +1,6 @@
 # Prueba_mercadotech
 Prueba mercadotech Grupo 9
 Integrantes: Elizabeth Alvarez Díaz :smile:
-Angie Lorena Cañas :rolf:
+Angie Lorena Cañas :rofl:
 Francy Narvaez 
-Astrid Corena
+Astrid Corena :slightly_smiling_face:
